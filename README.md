@@ -1,1 +1,1 @@
-# maggic-gamma-
+# Maggic Gamma Telescope
